@@ -1,4 +1,7 @@
-# let's get some rofl
+# важная инфа
+вероятно забанят на югейме
+поэтому вот мой тг канал, там мб че то черкану
+https://t.me/lamantinestuff
 # mega niks iq
 ![image](https://user-images.githubusercontent.com/45714660/161072560-b571ab31-ed02-496c-8659-85161b6d2062.png)
 ![image](https://user-images.githubusercontent.com/45714660/161072574-d463251e-2845-468d-8e50-9beb8eeb6bd6.png)
